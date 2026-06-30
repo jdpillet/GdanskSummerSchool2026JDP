@@ -1,0 +1,1 @@
+# GdanskSummerSchool2026JDP
